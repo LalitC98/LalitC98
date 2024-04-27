@@ -1,5 +1,5 @@
 
-👋 Hi, I’m @LalitC98
+👋 Hi, I’m @Lalit Chaudhari
 
 👀 I’m interested in business analysis, analytics, and international shipping.
 
