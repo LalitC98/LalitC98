@@ -2,10 +2,15 @@
 👋 Hi, I’m @LalitC98
 
 👀 I’m interested in business analysis, analytics, and international shipping.
+
 🌱 I’m currently learning advanced statistical modeling techniques and supply chain management principles.
+
 💼 I’m looking to collaborate on projects related to data-driven decision-making in the logistics and shipping industry.
+
 📫 You can reach me via email at lrchaudhari49@gmail.com or connect with me on LinkedIn - www.linkedin.com/in/lalit-chaudhari-
+
 😄 Pronouns: He/him
+
 ⚡ Fun fact: I love exploring new cultures through international cuisine and learning about global trade patterns.
 
 <!---
